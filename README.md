@@ -23,3 +23,9 @@ Now I am trying to manually label all the barnacles and proceed from there.
 ![image](https://github.com/user-attachments/assets/455270e8-9588-48a8-be5e-d4c50e2abd5e)
 
 ![image](https://github.com/user-attachments/assets/247a9543-55a6-4715-9c50-e784ed926f27)
+
+
+![image](https://github.com/user-attachments/assets/e7651a9e-664b-4b10-924b-0638392da5ea)
+
+![image](https://github.com/user-attachments/assets/9fa6445f-4d63-41b8-8281-190e3ae1e816)
+
